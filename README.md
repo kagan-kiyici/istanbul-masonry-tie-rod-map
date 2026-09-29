@@ -1,0 +1,1 @@
+# istanbul-masonry-tie-rod-map
